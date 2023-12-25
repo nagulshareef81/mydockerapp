@@ -1,17 +1,3 @@
 bsavbsabcawahfkeshs
 dhdgh
 df
-jdf
-j
-dfj
-dr
-jd
-rs
-qmslsl
-dsfd
-fsd
-sdw
-sdf
-dsf
-dsfsd
-xs
